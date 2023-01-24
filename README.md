@@ -15,6 +15,7 @@
 #### Мои контакты:
 
 - Mob: +79888960751
+- E-mail: rak.katia@gmail.com
 - Telegram: [rakKaty](https://t.me/rakKaty)
 
 
